@@ -8,8 +8,6 @@ Live Demo - https://github.com/xeoncodehub
 
 Instagram - https://www.instagram.com/itz_suryanshnawal?igsh=ZHV3bXZzNjN3Zjc=
 
-Telegram - https://t.me/QuantumCoding123
-
 
 GitHub- https://github.com/xeoncodehub
 
